@@ -1,4 +1,4 @@
-Ben's Dino built the Ben's Dino app as a Free app. This SERVICE is provided by Ben's Dino and is intended for use as is.
+Dadu 3d built the Dadu 3d app as a Free app. This SERVICE is provided by Dadu 3d and is intended for use as is.
 
 This page is used to inform visitors regarding our policies with the collection, use, and disclosure of Personal Information if anyone decided to use our Service.
 
